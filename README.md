@@ -1,0 +1,1 @@
+Maquetación adaptable
